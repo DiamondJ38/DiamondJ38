@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @DiamondJ38
+- 👀 I’m interested in video and board games, learning about tech, and drinking.
+- 🌱 I’m currently learning cybersecurity at ABCO tech.
+- 💞️ I’m looking to collaborate on anything that will teach my practical knowledge in IT.
+- 📫 How to reach me: Email: Jace.talalotu12@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm in the middle of a mid-life crisis at 27.
